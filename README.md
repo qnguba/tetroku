@@ -7,7 +7,7 @@ More Coffee equals more apps :)
 
 Choose one of the links below:
 * ht<span>tps://</span>ko-fi.com/qnguba
-* ht<span>tps://</span>www.buymeacoffee.com/qnguba
+* ht<span>tps://</span>buymeacoffee.com/qnguba
 
 Take a look at our apps in the play store:
 
